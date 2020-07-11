@@ -1,1 +1,1 @@
-  ![](https://media.giphy.com/media/aNqEFrYVnsS52/giphy.gif)
+  ![](https://thumbs.gfycat.com/FrigidMenacingDiscus-size_restricted.gif)
